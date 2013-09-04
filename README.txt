@@ -1,2 +1,0 @@
-Karly
-Kernals
